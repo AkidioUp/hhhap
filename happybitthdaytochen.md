@@ -1,0 +1,1 @@
+Today is World Book Day and also ChenWai's 28nd birthday. He is a Business owners and very outstanding, but still feels uncertain about his future and cannot find his direction. This video is made by Akidio to celebrate ChenWai's birthday, hoping that ChenWai can be firm and courageous to explore the unknown world.
